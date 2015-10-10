@@ -1,2 +1,0 @@
-# BTM
-Bite To Meet
